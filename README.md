@@ -1,7 +1,7 @@
 ## Your Info:
 
-Matric Number:  
-Name:
+Matric Number: 298601   
+Name: NURUL SYAMIMI BINTI MOHD ARIS
 
 ## Objective
 
